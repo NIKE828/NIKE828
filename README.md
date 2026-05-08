@@ -15,3 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Hi professor this is my revised assignment
+My name is Wang Hao. I come from China and I once served in the Chinese People's Liberation Army. After being discharged from the military, I came to study in South Korea. I have a cheerful and steady personality with a serious learning attitude. I am good at summarizing, thinking and studying independently. It's my great honor to be your student.
